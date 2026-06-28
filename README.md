@@ -21,5 +21,5 @@ Seeking entry-level remote roles in: Data Entry, Virtual Assistant, QA Testing, 
 ## Contact
 - **Location**: Lagos, Nigeria (GMT+1)
 - **Email**: [udabahassan33@gmail.com]
-- **Available**: Immediately
-years of factory discipline + new tech skills = reliable remote worker*
+- **Available* immediately
+- years of factory discipline + new tech skills = reliable remote worker
